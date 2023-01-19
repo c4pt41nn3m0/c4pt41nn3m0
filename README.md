@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @c4pt41nn3m0
+- 👋 Hi, I’m Karanveer Singh Thakur
 - 📫 How to reach me - thakur.singh.karanveer@gmail.com
 
 <!---
